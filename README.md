@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Leon147153
-- 👀 I’m interested in ... being with my family on dinner.
+- 👀 I’m interested in ... being with my family on dinner everyday.
 - 🌱 I’m currently learning ... to be with strangers i don't like. 
 - 💞️ I’m looking to collaborate on ... a project that have many contributors with supporting me.
 - 📫 How to reach me ... americano
