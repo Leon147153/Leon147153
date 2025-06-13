@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Leon147153
 - 👀 I’m interested in ... being with my family on dinner.
-- 🌱 I’m currently learning ... How to be friends with strangers.
-- 💞️ I’m looking to collaborate on ... music people.
+- 🌱 I’m currently learning ... how to be friends with strangers.
+- 💞️ I’m looking to collaborate on ... giving me a positive energy.
 - 📫 How to reach me ... americano
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... i cannot drink coffee until 28.
